@@ -4,7 +4,7 @@ You can find me in instagram by @mmathiascastaman or contact me whit @mmcastaman
 
 **About who i am**
 
-- I'm a 21 years (m), brazilian and studant of electrical engineering;
+- I'm a 21 years (m), brazilian and student of electrical engineering;
 
 - I like videogames and have some hobbies like talk about books and historys facts;
 
